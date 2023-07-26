@@ -6,3 +6,4 @@
 https://t.me/Alex_m_075
 
 ### Обучение
+![](https://user-images.githubusercontent.com/41840267/256210439-5f908937-ad66-4309-8d44-0b4847769d3a.jpg)
